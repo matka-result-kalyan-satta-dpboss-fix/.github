@@ -22,6 +22,42 @@ kalyan chart kalyan satta satta matta matka matka result kalyan matka dpboss mat
 ## Kalyan Satta DpBoss Fix Matka Result
 Kalyan Satta DPBoss Fix Matka Result सट्टा मैटका के खिलाड़ियों के बीच बहुत लोकप्रिय है 
 
+####  **MILAN DAY**  
+  Loading...  
+  [Refresh]
+
+#### **SUNDAY BAZAR**  
+  166-38-990  
+  [Refresh]
+
+####  **BOMBAY DAY**  
+  234-93-166  
+  [Refresh]
+
+#### **PUNA BAZAR**  
+  578-0  
+  [Refresh]
+
+#### **SUPER GOA DAY**  
+  Loading...  
+  [Refresh]
+
+####  **BOMBAY RAJSHREE DAY**  
+  169-6  
+  [Refresh]
+
+####  **CENTRAL BAZAR**  
+  Loading...  
+  [Refresh]
+
+####  **CHENNAI BAZAR**  
+  345-2  
+  [Refresh]
+
+####  **MAHARAJ DAY**  
+  Loading...  
+  [Refresh] 
+
 #### [KALYAN](https://github.com/sridevi-chart-dpboss-satta-matka-143)
 - **Loading...**
 - **03:45 PM - 05:45 PM**
